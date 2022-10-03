@@ -3,7 +3,7 @@
 
 [![odakhch's 42 stats](https://badge.mediaplus.ma/darkblue/odakhch)](https://github.com/DakhchOussama/badge42)
 
-- 📫 How to reach me **oussamadakhch1999@gmail.com**
+- 📫 Reach me : **oussamadakhch1999@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
